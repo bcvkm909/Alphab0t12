@@ -21,7 +21,7 @@ return `PAYMENT BY ZEEONE OFC
 3. DANA
 	ㅁ 0838 3306 7915
 	
-Semuanya atas nama RI****DI
+Semuanya atas nama R**************z
 
 *📲 PULSA*
 
